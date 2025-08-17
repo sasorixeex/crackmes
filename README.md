@@ -1,0 +1,2 @@
+salut n'installer pas le fichier test car ses pour tester de crack mon propre pc alors svp n'installer pas de toute façons si vous installer ne vous inquieter pas car je vais pas vous crack mais n'installer pas le fichier test merciiii
+Hello, do not install the test file because it is intended to test cracking my own computer. If you install the test file, don't worry because I will not crack you, but do not install the test file, thank you.
